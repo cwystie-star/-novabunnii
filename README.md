@@ -22,7 +22,9 @@ negativity won't get you pretty far here
   
 >> intro
 hi im nova !!
+ 
 i prefer not to say my age online but i'm somewhere inbetween the 15-18 age range.
+
 artist, writer, & electric guitarist
 i have exotic animals, ask 4 more info on ata!
 >> 
