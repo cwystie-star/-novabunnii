@@ -11,6 +11,13 @@ he/him/it/they ✦ !!
 <img src="https://github.com/user-attachments/assets/020114b8-0b4b-4638-bd94-585cde67816f" width="110">
 <img src="https://github.com/user-attachments/assets/6e14d3f4-e4fd-4942-aeb9-9cde90a3a5e2" width="110">
 <img src="https://github.com/user-attachments/assets/62b5c4a4-2b42-49c6-b282-aa26240e363f" width="110">
+
+<img src="https://github.com/user-attachments/assets/7103c67e-0da7-460b-b11e-9f4f5145592e" width="110">
+<img src="" width="110">
+<img src="https://github.com/user-attachments/assets/b722ed24-1d67-411e-896a-bd177c017d89" width="110">
+<img src="https://github.com/user-attachments/assets/020114b8-0b4b-4638-bd94-585cde67816f" width="110">
+<img src="https://github.com/user-attachments/assets/6e14d3f4-e4fd-4942-aeb9-9cde90a3a5e2" width="110">
+<img src="https://github.com/user-attachments/assets/62b5c4a4-2b42-49c6-b282-aa26240e363f" width="110">
   
 ## intro
 hi im nova !!
