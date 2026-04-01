@@ -2,8 +2,9 @@
 
 <p align="center">
 he/him/it/they ✦ !!
-pots, autism, adhd, osdd. ect </3 (yes, i am diagnosed.)
-negativity won't get you pretty far here
+pots, autism, adhd, osdd. ect (yes, i am diagnosed.)
+
+  negativity won't get you pretty far here
 <p/>
 
 <p align="center">
