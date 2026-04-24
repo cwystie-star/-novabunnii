@@ -21,15 +21,21 @@ pots, autism, adhd, osdd. ect (yes, i am diagnosed.)
 <img src="https://github.com/user-attachments/assets/2aa9c2ed-2db7-4726-a9b1-050ef136b2f7" width="110">
 <img src="https://github.com/user-attachments/assets/c2c56e6c-dae9-43c3-924a-a010f5eefda2" width="110">
 <img src="https://github.com/user-attachments/assets/424b78f3-cf3d-4603-8d82-5a5288ca9bd0" width="110">
-<img src="https://i2.glitter-graphics.org/pub/361/361402t974dt94qh.gif" width="110">
-<img src="https://adriansblinkiecollection.neocities.org/a7.gif" width="110">
-<img src="https://adriansblinkiecollection.neocities.org/c12.gif" width="110">
-<img src="https://i2.glitter-graphics.org/pub/361/361402t974dt94qh.gif" width="110">
-<img src="https://i2.glitter-graphics.org/pub/361/361402t974dt94qh.gif" width="110">
-<img src="https://i2.glitter-graphics.org/pub/361/361402t974dt94qh.gif" width="110">
-<img src="https://i2.glitter-graphics.org/pub/361/361402t974dt94qh.gif" width="110">
-<img src="https://i2.glitter-graphics.org/pub/361/361402t974dt94qh.gif" width="110">
+<img src="https://i2.glitter-graphics.org/pub/361/361402t974dt94qh.gif" width="125">
+<img src="https://adriansblinkiecollection.neocities.org/a7.gif" width="125">
+<img src="https://adriansblinkiecollection.neocities.org/c12.gif" width="125">
+<img src="https://adriansblinkiecollection.neocities.org/c47.gif" width="125">
+<img src="https://adriansblinkiecollection.neocities.org/e52.gif" width="125">
+<img src="https://adriansblinkiecollection.neocities.org/e111.gif" width="125">
+<img src="https://adriansblinkiecollection.neocities.org/v35.gif" width="125">
+<img src="https://adriansblinkiecollection.neocities.org/v71.gif" width="125">
 
+    
+<p align="center">
+<img src="https://adriansblinkiecollection.neocities.org/stamps/a36.png" width="120">
+<img src="https://adriansblinkiecollection.neocities.org/stamps/i16.png" width="120">
+<img src="https://adriansblinkiecollection.neocities.org/stamps/h14.png" width="120">
+<img src="https://adriansblinkiecollection.neocities.org/stamps/e53.jpg" width="120">
   
 <p align="center"> 𝙸𝚗𝚝𝚛𝚘 ! ⋆ ˖ ࣪ 
  
@@ -55,7 +61,7 @@ zoophile, pedophile, racist, homophobic, trumpies.
 
 if you're someone i used to know, theres a reason why i don't anymore.
 
-dandy's world fans,,, sorry. not really sorry
+dandy's world fans,,, sorry. (unless you're chi.)
 
 if u romanticize mental health, gtfo. no explanation needed
 
@@ -76,3 +82,14 @@ i am autistic, i may require a bit more reassurance, if you don't like that bai 
 i don't condone in harassing someone just to be cool, just block n move on.
 
 i love people who interact, crown me!!!, c+h, or just sit w me in general. just pls don't cover me ! (dnk unless you're close friend, either.)
+
+
+
+
+<p align="center"> 𝑁𝑖𝑐𝑘𝑛𝑎𝑚𝑒𝑠 !! 
+
+💚 ⟡ Nova, koi, dude, bro, sir.
+
+🧡 ⟡ Girl, sis, queen.
+
+🔴 ⟡ Ma'am, princess, lady.
